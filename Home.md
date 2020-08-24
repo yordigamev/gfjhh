@@ -1,1 +1,1 @@
-Welcome to the nekotina wiki!
+Bienvenidos a la wiki oficial de Nekotina
